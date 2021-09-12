@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on a JavaScript to say more about me.
-- 🌱 I’m currently learning How To Code.
-- 📫 How to reach me: You can reach me on discord @!MissedCalls#2863.
+- 🔭 I’m currently working on BadManBoe's Discord Server
+- 🌱 I’m currently trying to learn How To Code.
+- 📫 How to reach me: You can reach me on discord @missedcallswife#2863.
 - 😄 Pronouns: He/Him.
-- ⚡ Fun fact: I run a discord server!
+- ⚡ Fun fact: I dispise the earth
